@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 I offer assistance and open to Collab's<br>👨‍💻 Coding, creating and sometimes gaming<br><br>💡 code ideas into REALITY 
+💻 I offer assistance and open to Collab's<br>👨‍💻 Coding, creating and sometimes gaming<br><br>💡 turn code ideas into REALITY 
 
 
 ## 🌐 Socials:
